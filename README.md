@@ -1,2 +1,2 @@
 # olivia-s-past-renren-blogs
-some old blogs in case that renren dies
+一些人人上的旧文搬运
